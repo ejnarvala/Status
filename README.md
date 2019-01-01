@@ -1,7 +1,7 @@
 # What's Ejnar doing now?
 > Finished __cooling__, planning to __get food__ and watching __O.J.: Made in America__
 
-# What has Ejnar done today (1/1/19)?
+# What has Ejnar done on 1/1/19?
 * 2 Bending Sessions
 * 2 Cooling Sessions
 * Watched __I, Tonya__
