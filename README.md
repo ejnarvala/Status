@@ -7,4 +7,5 @@
 * Watched __I, Tonya__
 * Watched __Student Athelete__
 * Watched __42__
+* Made this __status website__
 * Ate honey greek yogurt, some cheetos, some pringles
