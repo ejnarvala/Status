@@ -1,5 +1,5 @@
 # What's Ejnar doing now?
-> Finished __cooling__, planning to __get food__ and watching __O.J.: Made in America__
+> Getting food at __Chilis__
 
 # What has Ejnar done on 1/1/19?
 * 2 Bending Sessions
@@ -8,4 +8,5 @@
 * Watched __Student Athelete__
 * Watched __42__
 * Made this __status website__
+* Stsrted __O.J.: Made in America__
 * Ate honey greek yogurt, some cheetos, some pringles
