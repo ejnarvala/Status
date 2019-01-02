@@ -16,3 +16,4 @@
 * Made this __status website__
 * Ate honey greek yogurt, some cheetos, some pringles
 * Ate at __Chilis__
+* Watched __76ers vs Clippers__
