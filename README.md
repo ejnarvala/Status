@@ -1,11 +1,12 @@
 # What's Ejnar doing now?
-> Eating __Pizza Rolls__
+> nothing
 
 
 # What has Ejnar done on 1/2/19?
 * Ate a __banana__ and __greek yogurt__
 * Showered
 * Worked on __ThePlayOdds__
+* Ate __Pizza Rolls__
 
 # What has Ejnar done on 1/1/19?
 * 3 Bending Sessions
