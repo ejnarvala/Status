@@ -1,5 +1,5 @@
 # What's Ejnar doing now?
-> __Sleeping__
+> __Awake__ in bed
 
 # What has Ejnar done on 1/1/19?
 * 3 Bending Sessions
