@@ -1,6 +1,10 @@
 # What's Ejnar doing now?
 > Working on __ThePlayOdds__
 
+
+# What has Ejnar done on 1/2/19?
+* Ate a __banana__ and __greek yogurt__
+
 # What has Ejnar done on 1/1/19?
 * 3 Bending Sessions
 * 3 Cooling Sessions
