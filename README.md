@@ -1,5 +1,5 @@
 # What's Ejnar doing now?
-> __Awake__ in bed
+> Working on __ThePlayOdds__
 
 # What has Ejnar done on 1/1/19?
 * 3 Bending Sessions
