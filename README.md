@@ -1,5 +1,5 @@
 # What's Ejnar doing now?
-> Finished __Bending__ and watching __76ers vs Clippers__
+> __Cooling__ and watching __76ers vs Clippers__
 
 # What has Ejnar done on 1/1/19?
 * 3 Bending Sessions
