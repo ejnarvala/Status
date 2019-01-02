@@ -4,6 +4,7 @@
 
 # What has Ejnar done on 1/2/19?
 * Ate a __banana__ and __greek yogurt__
+* Showered
 
 # What has Ejnar done on 1/1/19?
 * 3 Bending Sessions
